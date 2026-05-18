@@ -1,4 +1,4 @@
-# 
+# Hidden Vegas Pro for PC addons is the best Vegas Pro for PC addons with timeline-editing and masking. Safe, reliable, and optimized for maximum performance.
 
 
 
